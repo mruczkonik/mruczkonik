@@ -19,7 +19,7 @@ aka Kuba — young code alchemist brewing bits in the digital abyss
 > Python, bots, terminal stuff, weird GitHub automation  
 
 📫 reach me (if you dare):  
-> [discord.gg/mruczkonik](https://discord.gg/mruczkonik) *(or maybe you’re not cool enough)*
+> [discord.gg/mruczkonik](https://discord.gg/mruczkonik420) *(or maybe you’re not cool enough)*
 
 🎮 other presence:  
 - 🧨 YouTube: [@mruczkonik-codes](https://youtube.com/@mruczkonik-codes)  
